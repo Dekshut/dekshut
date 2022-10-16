@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I am Software Engineer with a passion for Science and Human Behavior<br>💬 Shoot me an Email or add me on Linkedin :)<br>
+🔭 I am Software Engineer with a passion for Science and Human Behavior<br>💬 Add me on Linkedin :)<br>
 
 
 ## 🌐 Socials:
