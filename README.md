@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on<br>👯 I’m looking to collaborate on<br>🤝 I’m looking for help with<br>🌱 I’m currently learning<br>💬 Ask me about<br>⚡ Fun fact
+🔭 I am Software Engineer with a passion for Science and Human Behavior<br>💬 Shoot me an Email or add me on Linkedin :)<br>
 
 
 ## 🌐 Socials:
